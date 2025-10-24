@@ -1,0 +1,1 @@
+# Yetzyow-UK-Trademark-Declaration
