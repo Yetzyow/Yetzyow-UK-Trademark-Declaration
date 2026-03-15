@@ -21,6 +21,7 @@ As Ludographer, my work encompasses three primary domains:
 
 2. **Design & Invention**  
    - Creative development across IT, Artificial Intelligence, Computer Graphics, and Virtual Reality.  
+   - Video Game Design and the interpretation of games as narrator or character within their narrative frameworks.  
 
 3. **Gaming**  
    - Active participation and contribution in Casual Gaming, Role-Playing Games (RPG), and eSports.  
