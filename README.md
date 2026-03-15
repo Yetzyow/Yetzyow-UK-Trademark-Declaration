@@ -39,7 +39,4 @@ This commitment extends beyond my lifetime, affirming that the mark **Yetzyow™
 
 ---
 
-**Signed:**  
-![Signature](attachment:o39x8aHzwPtUSyVrZS2mA.png)  
-
 **Date:** March 14, 2026  
